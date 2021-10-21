@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Remening
+- 👋 Hi, I’m @Remening and i'm bad speak english
 - 👀 I’m interested in learning programming and self-development ^_^
 - 🌱 I’m currently learning to be a programmer in college
 - 💞️ I’m looking to collaborate with anyone who wants to help or advise in the study
